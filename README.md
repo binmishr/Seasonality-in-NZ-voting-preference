@@ -1,0 +1,1 @@
+# Seasonality-in-NZ-voting-preference-by-ellis2013nz
